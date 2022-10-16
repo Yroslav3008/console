@@ -1,1 +1,1 @@
-Read me
+Thanks for help
